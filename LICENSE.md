@@ -1,4 +1,4 @@
-# 
+# Élite pump.fun sniper bot scripts para Mac OS | Exclusivo pump.fun sniper bot scripts para PC Windows. Con control de deslizamiento y baja latencia — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
